@@ -1,5 +1,11 @@
-# 💫 About Me:
-📷 I’m currently working on :<br>La gestion et le développement de projets digitaux en tant que Team Leader<br><br>👥 I’m looking to collaborate on :<br>Des projets nécessitant une gestion efficace et une vision stratégique<br><br>🤝 I’m looking for help with :<br>L’amélioration continue des processus et la coordination d’équipe<br><br>🌱 I’m currently learning :<br>De nouvelles méthodes pour optimiser la gestion et la performance des projets<br><br>💬 Ask me about :<br>Leadership, organisation du travail en équipe et bonnes pratiques de développement<br><br>⚡ Fun fact :<br>Je trouve toujours des solutions aux problèmes les plus complexes, même sous pression !
+# 💫 À propos de moi :  
+📷 Je travaille actuellement sur :<br>La gestion et le développement de projets digitaux en tant que Team Leader<br><br>  
+👥 Je cherche à collaborer sur :<br>Des projets nécessitant une gestion efficace et une vision stratégique<br><br>  
+🤝 J’ai besoin d’aide pour :<br>L’amélioration continue des processus et la coordination d’équipe<br><br>  
+🌱 J’apprends actuellement :<br>De nouvelles méthodes pour optimiser la gestion et la performance des projets<br><br>  
+💬 Posez-moi des questions sur :<br>Le leadership, l’organisation du travail en équipe et les bonnes pratiques de développement<br><br>  
+⚡ Fun fact :<br>Je trouve toujours des solutions aux problèmes les plus complexes, même sous pression ! 🚀  
+
 
 
 ## 🌐 Socials:
